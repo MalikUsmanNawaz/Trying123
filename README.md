@@ -1,6 +1,1 @@
-# Trying123
-
-dsfnkhsdfuhjf
-slkfnsdkhfj
-hi my name is usman nawaz
-and i'm from attock,punjab,pakistan
+Salaam, I'm Usman Nawaz. Student of Quran and fighting with shitaan and my cusions. InShaAllah my Aim will win one day. JazakAllah
